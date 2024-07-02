@@ -4,7 +4,7 @@ These summaries are designed to provide a quick review, including concise theore
 
 If you find any mistakes in the summaries, please let me know. I studied the math degree in Spanish so I apologize in advance if you find any unusual English.
 
-Thank you in advance,
+Thank you,
 
 David
 
